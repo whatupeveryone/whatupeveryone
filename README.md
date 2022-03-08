@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hithereevryone
 - 👀 I’m interested in food----
-- 🌱 I’m currently learning orchestra and many more subject like france and other seven more language~~~~~~~
+- 🌱 I’m currently learning a cello in orchestra and many more subject like france and other seven more language~~~~~~~
 - 💞️ I’m looking to collaborate on with everyone of you all^-^
 - 📫 How to reach me ( I don't have a phone yet and Im using my computer right now)-_-
 
